@@ -1,0 +1,1 @@
+# EdgeTX-Italian-HQ-Voicepack
